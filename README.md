@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-CORL900709HSPBMB01
+CORL900709HSPBMB01
